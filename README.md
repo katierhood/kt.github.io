@@ -5,11 +5,4 @@ I am just getting started.
 Checkback soon for updates!
 
 
-### **Coding projects:** 
 
-
-
-### 
-
-
-### 
